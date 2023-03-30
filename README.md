@@ -1,2 +1,2 @@
-# smg-docs
-Super Massive Games - Documentation
+# mtg-docs
+Marjorie Taylor Greene is HOT!
